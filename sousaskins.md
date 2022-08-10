@@ -9,3 +9,8 @@
 
 # [sousa1 hddt makise](https://mega.nz/file/BLYVSTbA#BP4JJA1FBLVlIJkMlTS3m21jukkfWOkxmvTVdSezxB4)
 ![](https://osu.ppy.sh/ss/18041838/38c7)
+
+# [sousa1 nomod](https://mega.nz/file/BLYVSTbA#BP4JJA1FBLVlIJkMlTS3m21jukkfWOkxmvTVdSezxB4)
+![](https://osu.ppy.sh/ss/18041848/a884)
+![](https://osu.ppy.sh/ss/18041850/28a9)
+# [this one was edited by axiey (https://osu.ppy.sh/users/11711340)]
