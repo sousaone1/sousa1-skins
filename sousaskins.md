@@ -2,6 +2,16 @@
 
 
 
+
+# [hvick225](https://drive.google.com/file/d/1Gqi9STDi8K84S3Yq4SxyOTZRdn9Ve9jO/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18114353/5a0d)
+# hvick225 skin, with pink and turquoise slider colors/without sliderendcircle
+
+# [rafis hddt turquoise](https://drive.google.com/file/d/1djiFYQKhh1X4rUXrvCPIPShyGnHMoBa0/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18114342/8a32)
+# rafis hddt mrekk but turquoise sliders
+
+
 # [hey mister! (remillia scarlet)](https://drive.google.com/file/d/1OVaBNVqzBgomZOj0UCSVnx8zZzEtFnTH/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18042011/9bd4)
 # lets play mario kart like adults, honestly.
