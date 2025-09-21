@@ -15,7 +15,7 @@
 
 # [hey mister! (remillia scarlet)](https://drive.google.com/file/d/1OVaBNVqzBgomZOj0UCSVnx8zZzEtFnTH/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18042011/9bd4)
-# lets play mario kart like adults, honestly.
+# sorry.
 
 
 # [rafis hddt (sousa1 edit)](https://drive.google.com/file/d/1JkbkKQNA_gQeoSw_yWG4IpqEe60iNpAG/view?usp=sharing)
