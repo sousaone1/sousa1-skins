@@ -1,6 +1,7 @@
 # sousa1 !!!!super private!!!!  skins
 
-
+# [2025 skins](https://drive.google.com/drive/folders/1JDNP3EyjgalxleEA8xGguRyVMcZgBap-?usp=sharing)
+# too lazy to screenshot one by one
 
 
 # [hvick225](https://drive.google.com/file/d/1Gqi9STDi8K84S3Yq4SxyOTZRdn9Ve9jO/view?usp=sharing)
